@@ -1,1 +1,1 @@
-# Portugol-Est-dio-Uma-Jornada-de-Aprendizado-e-Conhecimento-em-Programa-o
+# Portugol Estudio: Uma Jornada de Aprendizado e Conhecimento em Programação.
